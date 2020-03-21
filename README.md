@@ -39,7 +39,7 @@ b) A música e a Indústria Cultural
 
 Fanatismo, paixão por artistas, shows lotados, fã clubes, essas são características dessa cultura de Massa que é a música que fazem parte da Indústria Cultural que ocorreu no último século. Os musicistas, nesse cenário, podem produzir a mais belas músicas, mas senão vendê-la, ela não terá nenhum valor.
 
->“Contudo, se o homem moderno já não crê numa magia natural, continua, acreditando numa espécia de                                       >‘magia social’. Se um desejo coletivo é sentido em toda a sua força e intensidade, o povo pode ser                                     >facilmente persuadido de que tudo quanto necessita é de um homem providencial capaz de satisfazê-                                        >lo” 2003, CASSIRER, O mito do Estado.
+>Contudo, se o homem moderno já não crê numa magia natural, continua, acreditando numa espécia de ‘magia social’. Se um desejo coletivo é sentido em toda a sua força e intensidade, o povo pode ser facilmente persuadido de que tudo quanto necessita é de um homem providencial capaz de satisfazê-lo”. (CASSIRER, 2003, O mito do Estado).
                        
 A citada ‘Magia Social’ não age como um arquétipo, pois não é comum a todos, age como um mero produto fabricado. A Indústria Cultural, portanto exerce no campo musical, um padrão de exigência e de perfis, que sejam aceitos pelos consumidores, os musicistas vítimas disso, procuram então sempre se adequar a essas exigências. Logo a música se tornou um produto vendável.
 
